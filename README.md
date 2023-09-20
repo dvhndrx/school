@@ -1,1 +1,1 @@
-# school
+kill myself and burn jews
